@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Cybersecurity And AI**
 
-- 📫 How to reach me **milenebedouhene@gmail.com**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
